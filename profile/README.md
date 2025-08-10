@@ -1,5 +1,5 @@
 # ✨ intro
-Heyya, I'm Adrian! A 23 years old vibe coding enthusiast that loves sharting my trash-ass ideas into LLMs that have zero sense of proper coding.
+Heyya, I'm Adrian ✂️! A 23 years old vibe coding enthusiast that loves sharting my trash-ass ideas into LLMs that have zero sense of proper coding.
 I live in Germany near Dortmund and my favorite activities are either coding, fapping, binge-watching, mistreating my partner or eating trash from the supermarket.
 
 
